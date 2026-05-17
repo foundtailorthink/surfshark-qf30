@@ -1,10 +1,10 @@
-Custom Surfshark Utility | kill switch + streaming optimization is the best Surfshark utility with kill switch and streaming optimization. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/surfshark-qf30/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
